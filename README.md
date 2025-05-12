@@ -1,1 +1,0 @@
-# Math-Revision-G10-Sem2
